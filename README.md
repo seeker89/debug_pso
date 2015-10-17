@@ -35,7 +35,32 @@ Psoriasis is the external manifestation of the body's attempt to "throw off" int
 6. External applications
 7. Right thinking
 
+## 1. Internal cleansing
+
+- bowels
+  - high colonic irrigation (3-5 over 7-8 weeks)
+  - home enemas
+- kidneys
+  - at least two liters of water a day 
+- liver
+  - at least two liters of water a day
+- lungs
+  - deep breathing, outdoor physical activities
+- skin
+  - sweating during the physical activity,
+  - sauna, steam baths
+
+
 ## Eating
+
+### Avoiding things
+
+### Having other things
+
+- olive oil
+- garlic
+- yoghurt (low fat, plain, no additions)
+- 
 
 
 ## Supplements
