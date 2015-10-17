@@ -47,8 +47,9 @@ Psoriasis is the external manifestation of the body's attempt to "throw off" int
 - lungs
   - deep breathing, outdoor physical activities
 - skin
-  - sweating during the physical activity,
+  - sweating during the physical activity
   - sauna, steam baths
+  - swimming
 
 ## Eating
 
@@ -65,11 +66,69 @@ At the end of the third day, eat 500g of plain yoghut to help rebuid the bacteri
 
 ### Avoiding things
 
+1. Saturated fats - red meats, processed meats, fried things
+2. Nightshades:
+  - tomatoes
+  - tobacco
+  - eggplant
+  - white potatoes
+  - peppers
+  - paprika
+3. Too many sweets
+4. Smoking
+5. Alcohol
+6. Junk/Fried food
+7. Other:
+  - shellfish
+  - whole-milk dairy products
+
 ### Having other things
 
-- olive oil
-- garlic
-- yoghurt (low fat, plain, no additions)
-
+- water !
+  - at least 2 liters of water (optionally with lemon or lime juice) 
+- vegetables
+  - leafy in particular (romaine lettuce)
+  - sweet potatoes
+  - anything really, with ratio 3:1 for over and under ground veg
+- fresh fruits
+  - apples, 
+  - anything really goes
+- fish, foul, lamb
+  - skinless, cooked, grilled
+- pasta
+  - only whole-grain
+- rice
+  - brown
+  - wild
+  - avoid white
+- alkaline formers:
+  - lecithin
+  - lemon juice in water
+  - fruit juices
+  - fresh or stewed fruit
+  - three to five drops of Glyco-Thymoline in a glass of water before bed
+  - amaranth, millet and quinoa
+- things helping with the bowel movement:
+  - castor oil (castor oil sandwich),
+  - olive oil
+- things high in fiber:
+  - green beans
+  - cauliflower
+  - carrots
+  - lettuce
+  - sweet potatoes
+  - cabbage
+  - All-Bran, unsweetened shredded wheat, etc
+- things helping healing of the bowels:
+  - garlic
+- things building the bacterial flora:
+  - yoghurt (low fat, plain, no additions)
+  - kefir
+- teas:
+  - American Saffron tea
+  - 
 
 ## Supplements
+
+- granular lecithin 
+  - (one tablespoon, three times a day, 5 days a week)
