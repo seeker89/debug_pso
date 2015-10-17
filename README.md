@@ -66,7 +66,11 @@ At the end of the third day, eat 500g of plain yoghut to help rebuid the bacteri
 
 ### Avoiding things
 
-1. Saturated fats - red meats, processed meats, fried things
+1. Saturated fats
+  - red meats, processed meats
+  - pepperoni, bologna, sausage
+  - margarine
+  - fried things
 2. Nightshades:
   - tomatoes
   - tobacco
@@ -78,6 +82,9 @@ At the end of the third day, eat 500g of plain yoghut to help rebuid the bacteri
 4. Smoking
 5. Alcohol (only red wine OK)
 6. Junk/Fried food
+  - candy, pastries
+  - french fries, potato chips
+  - soda, sweets
 7. Other:
   - shellfish
   - whole-milk dairy products
