@@ -50,8 +50,16 @@ Psoriasis is the external manifestation of the body's attempt to "throw off" int
   - sweating during the physical activity,
   - sauna, steam baths
 
-
 ## Eating
+
+### Starting up
+
+The three-day apple diet - repeat for three days to begin the treatment:
+- start the morning with a glass of water with an entire lemon squized in,
+- eat as many apples (Red or Golden delicious) as you want,
+- high colonic irrigation in the evening
+- full tablespoon of olive oil before bed
+
 
 ### Avoiding things
 
@@ -60,7 +68,6 @@ Psoriasis is the external manifestation of the body's attempt to "throw off" int
 - olive oil
 - garlic
 - yoghurt (low fat, plain, no additions)
-- 
 
 
 ## Supplements
