@@ -60,6 +60,7 @@ The three-day apple diet - repeat for three days to begin the treatment:
 - high colonic irrigation in the evening
 - full tablespoon of olive oil before bed
 
+At the end of the third day, eat 500g of plain yoghut to help rebuid the bacterial flora.
 
 ### Avoiding things
 
