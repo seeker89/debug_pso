@@ -74,9 +74,9 @@ At the end of the third day, eat 500g of plain yoghut to help rebuid the bacteri
   - white potatoes
   - peppers
   - paprika
-3. Too many sweets
+3. Too many sweets (honey, maple syrup OK)
 4. Smoking
-5. Alcohol
+5. Alcohol (only red wine OK)
 6. Junk/Fried food
 7. Other:
   - shellfish
@@ -126,9 +126,23 @@ At the end of the third day, eat 500g of plain yoghut to help rebuid the bacteri
   - kefir
 - teas:
   - American Saffron tea
-  - 
+  - Slippery Elm
+    - add half a teaspoon to warm water
+    - wait 15 minutes
+    - wait 30 minutes with breakfast
+    - to be taken in the morning for at least two week
+  - Chamomile
+  - Green Tea
 
 ## Supplements
 
 - granular lecithin 
   - (one tablespoon, three times a day, 5 days a week)
+- essential fatty acids:
+  - 1000mg fish oil, 3 times a day,
+- vitamin A:
+  - 25 000 IU a day for a month, then 10 000 UI
+- zinc
+  - 30 mg a day
+- copper
+  - 2 mg a day 
