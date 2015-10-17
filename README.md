@@ -57,8 +57,9 @@ Psoriasis is the external manifestation of the body's attempt to "throw off" int
 
 The three-day apple diet - repeat for three days to begin the treatment:
 - start the morning with a glass of water with an entire lemon squized in,
-- during the day, have as much water as wanted,
-- eat as many apples (Red or Golden delicious) as you want,
+- during the day
+  - have as much water as wanted, min. 2 liters
+  - eat as many apples (Red or Golden delicious) as wanted
 - high colonic irrigation in the evening
 - full tablespoon of olive oil before bed
 
