@@ -27,7 +27,13 @@ Psoriasis is the external manifestation of the body's attempt to "throw off" int
 
 ## The approach
 
--
+1. Internal cleansing
+2. Physical and mental activity
+3. High alkaline, low acidic diet
+4. Specific herbal teas
+5. Adjustments to the spine
+6. External applications
+7. Right thinking
 
 ## Eating
 
