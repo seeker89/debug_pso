@@ -135,11 +135,12 @@ At the end of the third day, eat 500g of plain yoghut to help rebuid the bacteri
   - American Saffron tea
   - Slippery Elm
     - add half a teaspoon to warm water
-    - wait 15 minutes
-    - wait 30 minutes with breakfast
-    - to be taken in the morning for at least two week
+    - wait 15 minutes, drink
+    - have breakfast at least 30 minutes later
+    - to be taken in the morning for at least two weeks at the beginning
   - Chamomile
   - Green Tea
+    - with honey makes for a god coffee replacement
 
 ## Supplements
 
