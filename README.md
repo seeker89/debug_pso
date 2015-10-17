@@ -143,15 +143,3 @@ essential fatty acids | 1000mg fish oil, 3 times a day,
 vitamin A | 25 000 IU a day for a month, then 10 000 UI
 zinc | 30 mg a day
 copper | 2 mg a day 
-
-
-- granular lecithin 
-  - (one tablespoon, three times a day, 5 days a week)
-- essential fatty acids:
-  - 1000mg fish oil, 3 times a day,
-- vitamin A:
-  - 25 000 IU a day for a month, then 10 000 UI
-- zinc
-  - 30 mg a day
-- copper
-  - 2 mg a day 
