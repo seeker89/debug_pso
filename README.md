@@ -141,7 +141,7 @@ At the end of the third day, eat 500g of plain yoghut to help rebuid the bacteri
     - to be taken in the morning for at least two weeks at the beginning
   - Chamomile
   - Green Tea
-    - with honey makes for a god coffee replacement
+    - with honey makes for a good coffee replacement
 
 ## Supplements
 
