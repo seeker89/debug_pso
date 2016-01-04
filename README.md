@@ -153,3 +153,5 @@ vitamin A | 25 000 IU a day for a month, then 10 000 UI
 zinc | 30 mg a day
 copper | 2 mg a day 
 friendly gut bacteria | > 5 Billion/day (Ultra Maximum Acidophilus by Holland & Barret for example)
+Apple Cider Vinegar | 2 tbps in water morning + evenining
+Bicarbonate of Soda | 1/4 tsp in water morning
