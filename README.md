@@ -155,3 +155,18 @@ copper | 2 mg a day
 friendly gut bacteria | > 5 Billion/day (Ultra Maximum Acidophilus by Holland & Barret for example)
 Apple Cider Vinegar | 2 tbps in water morning + evenining
 Bicarbonate of Soda | 1/4 tsp in water morning
+
+
+## Useful links
+
+chriskresser.com seems to have interesting stuff:
+
+- http://chriskresser.com/9-steps-to-perfect-health-1-dont-eat-toxins/
+- http://chriskresser.com/9-steps-to-perfect-health-2-nourish-your-body/
+- http://chriskresser.com/9-steps-to-perfect-health-3-eat-real-food/
+- http://chriskresser.com/9-steps-to-perfect-health-4-supplement-wisely/
+- http://chriskresser.com/9-steps-to-perfect-health-5-heal-your-gut/
+- http://chriskresser.com/9-steps-to-perfect-health-6-manage-your-stress/
+- http://chriskresser.com/9-steps-to-perfect-health-7-move-like-your-ancestors/
+- http://chriskresser.com/9-steps-to-perfect-health-8-sleep-more-deeply/
+- http://chriskresser.com/9-steps-to-perfect-health-9-practice-pleasure/
