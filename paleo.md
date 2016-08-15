@@ -53,3 +53,6 @@ Currently, this guide contains info from [thepaleomom](http://www.thepaleomom.co
 ### Reintroduce
 
 Once the autoimmune reaction is gone, food can be reintroduced, one at a time.
+
+
+![](http://paleoguide.wpengine.netdna-cdn.com/wp-content/uploads/2015/01/Paleo_AIP-1024x791.jpg)
