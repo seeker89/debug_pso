@@ -9,7 +9,7 @@ That's why I'm going to conduct a 6-weeks experiment with the Paleo.
 
 ### Sources
 
-Currently, this guide contains info from [thepaleomom](http://www.thepaleomom.com/the-autoimmune-protocol/) and [the paleo way](https://thepaleoway.com/wp-content/uploads/2015/11/TPW_AIP-Food-List.pdf)
+Currently, this guide contains info from [thepaleomom](http://www.thepaleomom.com/the-autoimmune-protocol/), [the paleo way](https://thepaleoway.com/wp-content/uploads/2015/11/TPW_AIP-Food-List.pdf) and [the ultimate paleo guide](http://ultimatepaleoguide.com/autoimmune-protocol/)
 
 
 ## The guide
