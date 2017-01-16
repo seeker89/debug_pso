@@ -156,6 +156,17 @@ friendly gut bacteria | > 5 Billion/day (Ultra Maximum Acidophilus by Holland & 
 Apple Cider Vinegar | 2 tbps in water morning + evenining
 Bicarbonate of Soda | 1/4 tsp in water morning
 
+## Baths
+
+Epsom salt baths are not only relaxing, but also help a lot to detox.
+
+## Bicarbonate of soda
+
+Bicarbonate of soda can be used as a natural, very cheap and effective way of improving the visuals of the lesions. Read more about how to use it [here](http://solongpsoriasis.com/dont-try-baking-soda-for-psoriasis-until-youve-read-this/). Recommended:
+
+- bicarbonate of soda baths (if you can handle it)
+- bicarbonate of soda paste (works almost as good as steroids)
+
 
 ## Useful links
 
