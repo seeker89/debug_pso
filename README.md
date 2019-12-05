@@ -181,3 +181,9 @@ chriskresser.com seems to have interesting stuff:
 - http://chriskresser.com/9-steps-to-perfect-health-7-move-like-your-ancestors/
 - http://chriskresser.com/9-steps-to-perfect-health-8-sleep-more-deeply/
 - http://chriskresser.com/9-steps-to-perfect-health-9-practice-pleasure/
+
+
+## Useful tools
+
+- viome.com - gut biome analysis from a stool sample
+- food reactions (igG) to various foods against a blood sample - many companies provide that
